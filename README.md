@@ -4,6 +4,8 @@
 
 * http://www.connection-sports.com/news/2019/aug/14/thousands-watch-lake-anne-cardboard-boat-regatta/
 
+* https://www.youtube.com/watch?v=wIe9Jy_llEA&list=PL5PUYV3lFdRpgbCu-yFoJN0JdE6QDSLez
+
 2018 Two Person canoe (Captain Cinder)
 
 * http://www.connectionnewspapers.com/news/2018/aug/14/great-falls-boat-lake-anne-regatta/
