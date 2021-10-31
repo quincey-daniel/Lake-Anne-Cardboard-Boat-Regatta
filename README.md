@@ -7,3 +7,5 @@
 2018 Two Person canoe (Captain Cinder)
 
 * http://www.connectionnewspapers.com/news/2018/aug/14/great-falls-boat-lake-anne-regatta/
+
+* http://www.connectionnewspapers.com/news/2018/aug/15/crazy-fun-lake-anne-cardboard-boat-regatta/
